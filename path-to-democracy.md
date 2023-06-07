@@ -1,1 +1,5 @@
-سلام. تست راست به چپ نویسی.
+# On the Path to Democracy for Iran
+
+I believe it is common sense that we cannot get to a stable democracy by just shouting "death to dictator". This is further evident by the recent events happening in Sudan. There's a high risk that death of Khamenei might actually make the situation worse if we're not prepared and don't have suitable alternatives in place.
+
+I think we need to form a democratic government right away and not wait for Khamenei's death or whether the Islamic Republic is still in place or not. We must form our own government and we must support this new government and give it legitimacy and be prepared to seize more power out of the Islamic Republic when the opportunity presents itself. If we are ready, it is very likely to be able to actually achieve some goals when people are focused on political issues, for example near the next presidential election day. However if we're not ready, protesters will lack proper coordination and organization once again.
